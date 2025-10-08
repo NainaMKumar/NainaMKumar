@@ -1,3 +1,3 @@
-- 👋 Hi, I’m Naina Kumar
+👋 Hi, I’m Naina Kumar
 
 
